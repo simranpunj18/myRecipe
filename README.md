@@ -1,1 +1,3 @@
-# myRecipe
+How to cook eggs and sausages morning breakfast/lunch 
+ingredients: Sausage from store, buy some eggs
+you need a pan and some vegatable oil.  Put a little bit of oil in the pan and cook the sausages for 10 minutes.  Before you cook the sausages have to be tauged so that you don't have to cook for alot of time.  After 10 minutes put in your egg.  Scramble the eggs and sausages together.  Optional:  You can add onions and bell pepper and tomatos or any other vegatable or meat of your choice.   Take some fruit preferably berries on the side.  
